@@ -1,1 +1,1 @@
-# webiste.me
+# website.me
